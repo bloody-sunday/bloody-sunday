@@ -1,3 +1,2 @@
-<p align="center">
-  <img src="https://tenor.com/lK55qixo0CG.gif" />
-</p>
+<p text align=center>
+<image src=https://files.catbox.moe/zcw15u.gif> </p>
