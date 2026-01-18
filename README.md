@@ -19,7 +19,7 @@ $\color{lightblue}{Ponytown.}$
 
 ꜢㅤI rarely / never interact first unless you do, even if we are friends on this game
 
-ꜢㅤI will only tolerate C + H if we're in the same fandom
+ꜢㅤI will allow C + H if we're in the same fandom
 
  ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
  
