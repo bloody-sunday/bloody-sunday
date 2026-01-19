@@ -18,7 +18,7 @@ $\color{lightblue}{About \space Me.}$
 
 $\color{lightblue}{Ponytown.}$ 
 
-꒱ㅤI rarely / never interact first unless you do, even if we are friends on this game
+꒱ㅤI rarely / never interact first unless you do, even if we are friends on this game since I have severe social anxiety. I hope you understand
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
