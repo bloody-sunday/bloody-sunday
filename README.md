@@ -28,7 +28,7 @@ $\color{lightblue}{Favourites /space :)}$
 
 ꒱ㅤSerbia (Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤEngland (Countryballs, Countryhumans and Hetalia)
+꒱ㅤEngland (Countryballs, Countryhumans and Hetalia) (The British make great music)
 
 ꒱ㅤCanada (Countryballs, Countryhumans and Hetalia)
 
