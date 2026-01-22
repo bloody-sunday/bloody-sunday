@@ -22,7 +22,7 @@ $\color{lightblue}{Ponytown.}$
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
-$\color{lightblue}{Favourite⠀:)}$ 
+$\color{lightblue}{Favourite.⠀:)}$ 
 
 ꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia)
 
