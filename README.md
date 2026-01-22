@@ -4,6 +4,8 @@
 
 <details align="center"> 
 <summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>
+ <img width="348" height="310" alt="image" src="https://github.com/user-attachments/assets/a212276d-2e68-4425-ace1-4c05bf6fe99c" />
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{lightblue}{About \space Me.}$ 
